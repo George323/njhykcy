@@ -1,2 +1,0 @@
-# njhykcy
-website for njhykcy
